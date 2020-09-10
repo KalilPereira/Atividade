@@ -7,7 +7,7 @@
 ## Tem como função realizar um diagnóstico nutricional para elaborar uma dieta que atenda às necessidades do paciente. Para isso, investiga o estado de saúde do paciente, seus hábitos alimentares e seu estilo de vida. A análise de saúde é feita através de medições de peso, altura, quantidade de gordura e massa muscular.
 # Mitos sobre a nutrição
 ## Dieta saudável é um dos temas mais discutidos atualmente. Talvez seja por isso que vários mitos sobre alimentação acabam surgindo. Muitos deles são tão antigos e enraizados que fica difícil excluí-los.
-![tenor.gif](https://www.google.com/url?sa=i&url=https%3A%2F%2Fquerobolsa.com.br%2Frevista%2F7-pos-graduacoes-mais-procuradas-na-area-de-nutricao&psig=AOvVaw1KvhLIONtQL5UtzDgGV9_Z&ust=1599862174467000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCJjCqJbN3-sCFQAAAAAdAAAAABAD)
+![tenor.gif](https://media.tenor.com/images/a3d927431196e6dee0f1802dca545f4b/tenor.gif)
 
 - Muitos acreditam que durante uma dieta não podemos comer pizza, bolo, chocolate e usam a frase: "essas coisas engordam", mas isto não é verdade! A verdade é que TUDO o que comemos desamasiadamente "engorda", até mesmo alface ou frutas, dependendo da quantidade, vai acrescentar umas calorias a mais e resultará no aumento de peso. Então, se durante a sua dieta você sentir vontade de comer alguma dessas besteirinhas, coma! Porque se você não comer no momento comerá depois, com grandes chances de extravazar na quantidade.
 
